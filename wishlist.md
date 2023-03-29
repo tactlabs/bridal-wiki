@@ -13,3 +13,8 @@
 
 
 
+### Note:
+By talking to 10,000 recently married couples (still we are collecting), we have collected these marriage wishlist
+
+
+
