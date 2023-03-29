@@ -1,4 +1,4 @@
-# Wiki Template
+# Bridal Wiki
 
 Description
 
